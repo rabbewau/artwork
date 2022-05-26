@@ -1,4 +1,4 @@
-**Fully Custom Steam Artwork for YOUR Profile!  
+ Fully Custom Steam Artwork for YOUR Profile!  
 Payment: 3 TF2 / 2 CS:GO Keys
 I also accept: PayPal, Bank Transfer (4€)
 
@@ -7,6 +7,9 @@ What is included?
 - Color and Style of Your Choice  
 - Custom Name, Font, Sidebar Texts  
 - I help you pick Style, Characters, Colors If You Want  
-- Free Steam Artwork Giveaways
+- Free Steam Artwork Giveaways  
 
- Caught your eye?**
+Caught your eye?
+
+Join the Discord below:
+https://discord.gg/5kQa6JhQXa
